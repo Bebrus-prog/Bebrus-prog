@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to do nothing!
 - 💞️ I’m looking to collaborate on nothing!
 - 📫 How to reach me nothing!
-- 😄 Pronouns: nothing!
+- 😄 Pronouns: bip/bop/boop
 - ⚡ Fun fact: nothing!
 
 <!---
